@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TranLe05
+- 👀 I’m interested in drawing and creating sth
+- 🌱 I’m currently learning Computer Science
+- 📫 How to reach me tranle18505@gmail.com
+- ⚡ Fun fact: not much
